@@ -1,6 +1,6 @@
 # _"Everything and Nothing"_
 ### _by Jorge Luis Borges_
-#### English Translation by Nicholas Scipione
+#### Translation by Nicholas Scipione
 
 ---
 
