@@ -1,6 +1,7 @@
-# **"Everything and Nothing"**
-## *by Jorge Luis Borges*
-### Translation by Nicholas Scipione
+# "Everything and Nothing"
+
+By Jorge Luis Borges
+Translation by Nicholas Scipione
 
 ---
 
