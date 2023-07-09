@@ -1,4 +1,4 @@
-# "Everything and Nothing"
+# Everything and Nothing
 
 By Jorge Luis Borges
 
