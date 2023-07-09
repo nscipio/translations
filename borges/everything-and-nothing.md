@@ -21,4 +21,4 @@ The story adds that, before or after dying, he found himself before God and said
 
 ---
 
-_This is an English translation of "Everything and Nothing" by Jorge Luis Borges, translated by Nicholas Scipione, and is licensed under the Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International (CC BY-NC-ND 4.0) license._
+_This work is an English translation of 'Todo y Nada' ('Everything and Nothing') by Jorge Luis Borges, and is licensed under the Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International (CC BY-NC-ND 4.0) license._
