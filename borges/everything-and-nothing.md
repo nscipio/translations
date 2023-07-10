@@ -8,7 +8,7 @@ No one was in him; behind his countenance (which, even through the poor painting
 
 For twenty years, he persisted in this directed hallucination, but one morning weariness and horror overwhelmed him. The burden of being so many kings who die by the sword and so many unfortunate lovers who converge, diverge, and melodiously agonize became too much. On that same day, he resolved to sell his theater. Before a week had passed, he returned to his hometown, where he rediscovered the trees and the river of his childhood, without linking them to those others that his muse had celebrated—illustrious with mythological allusions and Latin voices. He had to be someone; he became a retired businessman who had made a fortune and was interested in loans, litigation, and petty usury. In that character, he dictated the dry last will and testament that we know, deliberately excluding any emotional or literary aspect. Friends from London often visited him in his retreat, and for them, he resumed the role of the poet.
 
-The story adds that, before or after his death, he found himself before God and said, "I, who have been so many men in vain, want to be one and myself." God's voice answered him from a whirlwind, "I am not either; I dreamed the world as you dreamed your work, my Shakespeare, and among the forms of my dream, you were there, who like me are many and nobody."
+The story adds that, before or after his death, he found himself before God and said, "I, who have been so many men in vain, want to be one and myself." God's voice answered him from a whirlwind, "I am not either; I dreamed the world as you dreamed your work, my Shakespeare, and among the forms of my dream, you were there, who like me are everything and nothing."
 
 ---
 
