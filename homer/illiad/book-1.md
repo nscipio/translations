@@ -1,9 +1,1 @@
-Sing, O Muse, of the rage, that most destructive rage of Achilles, son of Peleus. It's a rage that's not unfamiliar to us even now—a fury that feels timeless, akin to a sudden storm, unpredictable and severe. It was a fury that wrought pain and suffering on the Achaians, sent scores of valiant souls plummeting into Hades, and left their bodies to be ravaged by dogs and birds. All of this, as Zeus intended.
 
-You could say it began with a quarrel—a personal one, intimate and yet far-reaching. Two men, King Agamemnon and the divine Achilles, crossed words and locked wills. Why, you might ask? What sparked this animosity that led to the destruction of so many? A god's whim, that's what—Apollo, the son of Leto and Zeus, angered at the king's disrespect of his priest, Chryses.
-
-Now, Chryses came to the ships of the Achaians to free his daughter, offering generous ransom, holding in his hands the golden staff of Apollo the Archer. He begged all the Achaeans, but especially Agamemnon and his brother Menelaus, the leaders of men.
-
-"Atrides and all you well-greaved Achaeans," he pleaded, "may the gods who live on Olympus grant you to sack Priam's city and return safely home. But free my beloved daughter, and accept the ransom, revering the son of Zeus, far-shooting Apollo."
-
-Here he was, a humble priest, standing before the might of men and warriors, trying to navigate the treacherous path of power and love, a father desperate to rescue a daughter. His words were like the opening notes of a tragedy, one that would play out in battle and death, love and loss, all under the watchful eyes of the gods who, even in their divine abode, never seemed far from the very human struggles of ambition, honor, and desire. It was the kind of story that feels epic and personal at once, a tale whose echoes are still felt today, a story that could only be crafted in the complex weave of humanity's relationship with the divine.
