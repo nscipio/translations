@@ -1,6 +1,6 @@
 # Translations Repository
 
-This repository contains translations of various authors, created by Nicholas Scipione.
+This repository contains translations of various authors, created by NM Scipione.
 
 ## License
 
