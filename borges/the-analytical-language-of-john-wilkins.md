@@ -22,4 +22,4 @@ Hopes and utopias aside, perhaps the most insightful words ever written about la
 
 ---
 
-_This work is an English translation of 'El idioma analítico de John Wilkins' ('The Analytical Language of John Wilkins') by Jorge Luis Borges, and is licensed under the Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International (CC BY-NC-ND 4.0) license._
+_Licensed under Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International (CC BY-NC-ND 4.0)._
